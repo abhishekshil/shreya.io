@@ -1,4 +1,4 @@
-A Page for NEW YEAR 2020
+A Page Made for expressing my thoughts towards someone
 ============
 
 It's a presentation page made for SOMEONE SPECIAL
